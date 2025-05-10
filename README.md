@@ -1,1 +1,1 @@
-I just started out coding. cryptography for fun, blockchain lover ♥️
+I just started out coding. learning cryptography for fun, blockchain lover ♥️
