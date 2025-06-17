@@ -1,1 +1,1 @@
-I just started out coding. learning cryptography for fun, blockchain lover ♥️
+I just started out coding. writer. watch me become cryptography/blockchain/ software engineer ♥️
